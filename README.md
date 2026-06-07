@@ -1,0 +1,2 @@
+# N.B.D
+STUDY HARD TO LIVE
